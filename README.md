@@ -1,0 +1,2 @@
+# KashCoin
+to the moon
